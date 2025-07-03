@@ -88,4 +88,10 @@ Opportunity is knocking!
 Contact us now and secure your server:  
 Telegram: [t.me/projectgutsv](https://t.me/projectgutsv)  
 Discord: [discord.gg/gutsv](https://discord.gg/gutsv)  
-Web: [https://gutsv.xyz](https://gutsv.xyz)
+Web: [https://gutsv.xyz](https://gutsv.xyz)!
+
+![image](https://github.com/user-attachments/assets/4adc817d-c620-4fb5-9c06-e50c2f2a0260)
+![image](https://github.com/user-attachments/assets/f77a28d3-632a-4440-9c81-09dbb7cccd00)
+
+
+
